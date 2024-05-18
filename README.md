@@ -6,3 +6,4 @@
   - [Instagram](https://www.instagram.com/ottobar/)
   - [LinkedIn](https://www.linkedin.com/in/ottobar/)
   - [X](https://x.com/ottobar/)
+- 🚲 I also think that non-electric bicycles should called “feature bikes,” similar to when smartphones came out and dumbphones were called “feature phones” as a euphemistic retronym. 🤷🏻‍♂️

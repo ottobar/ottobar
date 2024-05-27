@@ -1,3 +1,9 @@
+> Two roads diverged in a wood, and I—<br>
+> I took the one less traveled by,<br>
+> And that has made all the difference.<br>
+> 
+> -- <cite>Robert Frost, _The Road Not Taken_ (18-20)</cite>
+
 - 👋 Hi, I’m @ottobar
 - 🤩 Three words to describe me...Integrity, Grit, & Fun!
 - 👀 I’m interested in _all the things_, especially AI, the Web, & food...unfortunately, there are only 24 hours in a day and I have a family.

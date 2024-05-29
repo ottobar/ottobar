@@ -5,7 +5,7 @@
 > -- <cite>Robert Frost, _The Road Not Taken_ (18-20)</cite>
 
 - 👋 Hi, I’m @ottobar
-- 🤩 Three words to describe me: Integrity, Grit, & Fun!
+- 🤩 Three words to describe me: Integrity, Grit, & Joyful!
 - 👀 I’m interested in _all the things_, especially AI, the Web, & food...unfortunately, there are only 24 hours in a day and I have a family.
 - 🌱 I’m currently learning how to better communicate my brand and image to be more congruent with who I am, the values that I have, and the things that I do.
 - 💞️ I’m looking to collaborate on anything...everyone in this world knows something that you do not, so strive to find out what that is from them.

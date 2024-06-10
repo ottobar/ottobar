@@ -4,7 +4,8 @@
 > 
 > -- <cite>Robert Frost, _The Road Not Taken_ (18-20)</cite>
 
-- 👋 Hi, I’m @ottobar
+- 👋 Hi, I’m @ottobar, aka Don Barlow, aka Donald Otto Barlow III.
+- 💡 My Purpose: To cultivate an environment where we are all seen, heard, and known so that we live, laugh, love, and grow together.
 - 🤩 Three words to describe me: Integrity, Grit, & Joyful!
 - 👀 I’m interested in _all the things_, especially AI, the Web, & food...unfortunately, there are only 24 hours in a day and I have a family.
 - 🌱 I’m currently learning how to better communicate my brand and image to be more congruent with who I am, the values that I have, and the things that I do.

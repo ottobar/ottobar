@@ -12,6 +12,7 @@
 - 💞️ I’m looking to collaborate on anything...everyone in this world knows something that you do not, so strive to find out what that is from them.
 - 🏺 My favourite character from Greek Mythology: Cassandra, the Trojan priestess dedicated to the god Apollo and fated by him to utter true prophecies but never to be believed...I can relate. 
 - 📫 How to reach me...I'm @ottobar on most things...but specifically:
+  - [DEV Community](https://dev.to/ottobar)
   - [Instagram](https://www.instagram.com/ottobar/)
   - [LinkedIn](https://www.linkedin.com/in/ottobar/)
   - [X](https://x.com/ottobar/)
